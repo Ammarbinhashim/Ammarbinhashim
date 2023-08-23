@@ -2,3 +2,5 @@
 
 A guy opens a door and gets shot. You think I am the one who gets shot, NO! 
 I AM THE ONE WHO KNOCKS!!</b></i>
+
+~Walter White
