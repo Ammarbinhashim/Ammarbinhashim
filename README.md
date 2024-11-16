@@ -1,2 +1,2 @@
 A Mechanical Engineering Student. 
-Loves to design, Loves Python.  
+Love to design, loves Python.  
